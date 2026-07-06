@@ -131,7 +131,7 @@ GitHub:
 https://github.com/aryansrivastava26
 
 LinkedIn:  
-(Add your LinkedIn profile link here)
+www.linkedin.com/in/aryan-srivastava-100670306
 
 ---
 
